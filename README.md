@@ -15,4 +15,4 @@
 无需注册，随时访问最热门的影片和经典之作，满足你的各种观看需求。平台每日更新，确保你不会错过任何精彩内容。
 无论是剧情片、动作片还是其他类型，我们都为你准备了丰富的选择。立即加入，享受高清、无广告的日本AV娱乐，尽情享受每一刻的乐趣！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ff20250707/ff02 ）</span>
